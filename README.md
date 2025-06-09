@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BunQIpo
-- 👀 I’m interested in art drawing and computer scienec
+- 👀 I’m interested in art and computer scienec
 - 🌱 I’m currently learning learning at university
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
